@@ -1,1 +1,1 @@
-https://drevilwav.github.io/rsschool-cv/cv
+https://drevilwav.github.io/rsschool-cv
