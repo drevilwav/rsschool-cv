@@ -4,8 +4,8 @@
 
 ## Contact information:
 
-Location: Incheon, South Korea<br> 
-Phone number: +8210-8301-6127<br>
+Location: Khabarovsk, Russia<br> 
+Phone number: +7-924-301-1111<br>
 E-mail: vl.kutepov@gmail.com<br>
 Telegram: @vl_kutepov <br>
 KakaoID: vl.kutepov
@@ -31,7 +31,7 @@ I have extensive experience managing teams at a large federal company in the cen
 - Pacific National University<br>
 Bachelor's Degree in Machinery and Technology
 
-- RSSschool 2023/24
+- RSSschool 2025/26
 
 ## English Language
 
